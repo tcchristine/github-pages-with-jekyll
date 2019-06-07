@@ -27,4 +27,4 @@ LeBron James has #ManInTheArena written on his shoes.
 
 Source: https://en.wikipedia.org/wiki/Citizenship_in_a_Republic
 
-![this screenshot](../800px-TheodoreRoosevelt(cropped).jpg)
+![this screenshot](../_posts/sunflower-image.jpg)
