@@ -1,3 +1,8 @@
+---
+title: "Man in the Arena"
+date: 2019-06-07
+---
+
 The "Man in the Arena" passage was quoted by another US president, Richard Nixon, both in his victory speech on November 6, 1968, and in his resignation address to the nation on August 8, 1974:[4]
 
 Sometimes I have succeeded and sometimes I have failed, but always I have taken heart from what Theodore Roosevelt once said about the man in the arena, 'whose face is marred by dust and sweat and blood, [...]
