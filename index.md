@@ -2,7 +2,7 @@
 
 Something I love...
 
-**Citizenship in a Republic is the title of a speech given by the former President of the United States, Theodore Roosevelt, at the Sorbonne in Paris, France on April 23, 1910.[1]
+**Citizenship in a Republic is the title of a speech given by the former President of the United States, Theodore Roosevelt, at the Sorbonne in Paris, France on April 23, 1910.[1]**
 
 One notable passage on page seven of the 35-page speech is referred to as "The Man in the Arena":[2][3]
 
