@@ -10,4 +10,4 @@ One notable passage on page seven of the 35-page speech is referred to as "The M
 
 Source: https://en.wikipedia.org/wiki/Citizenship_in_a_Republic
 
-![sunflower](/_posts/sunflower-image.jpg)
+![fall](/fall-image.jpg)
